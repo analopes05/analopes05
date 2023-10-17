@@ -11,3 +11,6 @@ meu nome e ana mais pode me chamar de "carol"
 ana.lopes05@escola.pr.gov.br
 
 insta:@_.lopezzx._
+
+![]()
+https://media.tenor.com/O3qIam1dAQQAAAAC/hug-cuddle.gif
